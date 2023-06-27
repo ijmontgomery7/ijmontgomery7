@@ -17,4 +17,4 @@ If you have any questions or feedback about any of my projects (preferably somet
 
 Email: ijmontgomery7@gmail.com 
 
-or you could reach out to me on [LinkedIn](https://www.linkedin.com/in/ijmontgomery7/) or [Twitter](https://twitter.com/ExternalLettuce) 
+or you could reach out to me on [LinkedIn](https://www.linkedin.com/in/ijmontgomery7/)
